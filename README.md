@@ -1,4 +1,4 @@
- <h1  align="center";">🃜🃚🃖🃁🂭🂺 ﹕ 𝙱𝚢𝚏𝚒 ﹕ 🃜🃚🃖🃁🂭🂺</h1>
+ <h1  align="center";">🃜🃚🃖🃁🂭🂺 ﹕ 𝙱𝚏𝚢𝚒 ﹕ 🃜🃚🃖🃁🂭🂺</h1>
  
 <p align="center">
   <img width="460" height="300" src="image.png">
