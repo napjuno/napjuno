@@ -13,6 +13,7 @@
 .ᐟ 𝙸 𝚐𝚎𝚝 𝚊𝚝𝚝𝚊𝚌𝚑𝚎𝚍 𝚝𝚘 𝚘𝚝𝚑𝚎𝚛𝚜 𝚎𝚊𝚜𝚒𝚕𝚢 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎 𝚋𝚎 𝚌𝚊𝚞𝚝𝚒𝚘𝚞𝚜.
 
 ┆ 𝙵𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜; 𝙸’𝚖 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚊𝚗𝚢𝚍𝚊𝚢 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌𝚒𝚏𝚒𝚎𝚍, 𝙲+𝙷 𝚒𝚜 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚗𝚕𝚢 𝚜𝚘 𝙿𝙻𝙴𝙰𝚂𝙴 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚍𝚘 𝚝𝚑𝚊𝚝. 
+(Also pls don't whisper me if you only want to get contact with a specific person and not me, please just go to THAT person and talk to them it's annoying.)
  
 <h1  align="center";">𝘾𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</h1> 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
