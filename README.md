@@ -17,6 +17,9 @@
 
 Specific dni: Rude/Problematic ex friends, people I have blocked/hidden permanently, Phighting, Sth fandom...
 
+<p align="center">
+  <img width="460" height="300" src="IMG_3884.png">
+
 
 <h1  align="center";">𝘾𝙝𝙚𝙘𝙠 𝙢𝙮 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 𝙛𝙤𝙧 𝙢𝙤𝙧𝙚 𝙞𝙣𝙛𝙤𝙧𝙢𝙖𝙩𝙞𝙤𝙣.</h1> 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
