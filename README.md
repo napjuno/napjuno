@@ -1,7 +1,7 @@
- <h1  align="center";">🃜🃚🃖🃁🂭🂺 ﹕ 𝙱𝚏𝚢𝚒 ﹕ 🃜🃚🃖🃁🂭🂺</h1>
+ <h1  align="center";"> ﹕ 𝙱𝚏𝚢𝚒 ﹕ </h1>
  
 <p align="center">
-  <img width="460" height="300" src="image.png">
+  <img width="400" height="400" src="IMG_3886.gif">
 </p>
  <h1  align="center";"> "𝚢𝚘𝚞 𝚝𝚛𝚎𝚊𝚍 𝚘𝚗 𝚊 𝚙𝚊𝚝𝚑 𝙸 𝚛𝚎𝚊𝚍𝚒𝚎𝚍 𝚏𝚘𝚛 𝚢𝚘𝚞. 𝚊 𝚙𝚊𝚝𝚑 𝚝𝚘 𝚋𝚛𝚒𝚗𝚐 𝚢𝚘𝚞 𝚝𝚘 𝙼𝚎."</h1>
 
@@ -15,7 +15,7 @@
 ┆ 𝙵𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜; 𝙸’𝚖 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚝𝚊𝚕𝚔 𝚝𝚘 𝚊𝚗𝚢𝚍𝚊𝚢 𝚞𝚗𝚕𝚎𝚜𝚜 𝚜𝚙𝚎𝚌𝚒𝚏𝚒𝚎𝚍, 𝙲+𝙷 𝚒𝚜 𝚏𝚘𝚛 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚘𝚗𝚕𝚢 𝚜𝚘 𝙿𝙻𝙴𝙰𝚂𝙴 𝚏𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚍𝚘 𝚝𝚑𝚊𝚝. 
 
 
-Specific dni: Rude/Problematic ex friends, people I have blocked/hidden permanently, Phighting, Sth fandom...
+Specific dni: Rude/Problematic ex friends, people I have blocked/hidden permanently, Phighting, Sth fandom.
 
 <p align="center">
   <img width="460" height="300" src="IMG_3884.png">
