@@ -26,6 +26,6 @@
   <img width="490" height="330" src="IMG_3921.jpeg">
  
 <p align="center">  La goiz discussing Dancing Ohio Haggy Waggi
-
+*quit stalking me; i know who u are and where you sit at you arent "hiding"*
 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
