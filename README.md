@@ -25,7 +25,7 @@
 <p align="center">
   <img width="100" height="330" src="IMG_4135.gif">
  
-<p align="center">  ehhe
+<p align="center">  If you have seen THOSE skins of mines, i suggest you just HIDE me and go on with your day, I am not there for harassment and arguements. I am currently coping and wishing myself to get better at least this year.
 
 
  <a href="https://aksual.straw.page">Main strawpage</a> <a href="https://www.imood.com/users/aksually">My Imood page</a> 
