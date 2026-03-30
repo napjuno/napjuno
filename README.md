@@ -3,9 +3,9 @@
 <p align="center">
   <img width="400" height="400" src="IMG_4696.gif">
 </p>
-<h1  align="center";"> "𝗪𝗼𝘄! 𝗬𝗮𝗿𝗻'𝘁 𝗜 𝗴𝗹𝗮𝗱 𝘁𝗼 𝗵𝗮𝘃𝗲 𝗮 𝗳𝗿𝗶𝗲𝗻𝗱 𝗹𝗶𝗸𝗲 𝘆𝗼𝘂!"</h1> 
+<h1  align="center";"> "𝙒𝙝𝙚𝙧𝙚 𝙙𝙤 𝙄 𝙣𝙚𝙚𝙙 𝙩𝙤 𝙜𝙤? 𝙅𝙪𝙨𝙩 𝙩𝙤 𝙛𝙞𝙣𝙙 𝙢𝙮 𝙡𝙤𝙫𝙚? 𝙈𝙪𝙨𝙩 𝙄 𝙙𝙧𝙤𝙬𝙣 𝙞𝙣 𝙢𝙮 𝙝𝙖𝙩𝙚?"</h1> 
 <p align="center">
-<img width="100" height="100" src="IMG_4696.gif">
+<img width="300" height="300" src="Untitled76_20260330031536.png">
 
 
 <p align="center">
