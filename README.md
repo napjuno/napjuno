@@ -1,11 +1,11 @@
  <h1  align="center";"> ﹕ 𝙱𝚏𝚢𝚒 ﹕ </h1>
  
 <p align="center">
-  <img width="400" height="400" src="IMG_3886.gif">
+  <img width="400" height="400" src="IMG_4696.gif">
 </p>
 <h1  align="center";"> "𝗪𝗼𝘄! 𝗬𝗮𝗿𝗻'𝘁 𝗜 𝗴𝗹𝗮𝗱 𝘁𝗼 𝗵𝗮𝘃𝗲 𝗮 𝗳𝗿𝗶𝗲𝗻𝗱 𝗹𝗶𝗸𝗲 𝘆𝗼𝘂!"</h1> 
 <p align="center">
-<img width="100" height="100" src="IMG_3890.png">
+<img width="100" height="100" src="IMG_4696.gif">
 
 
 <p align="center">
