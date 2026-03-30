@@ -1,7 +1,7 @@
  <h1  align="center";"> ﹕ 𝙱𝚏𝚢𝚒 ﹕ </h1>
  
 <p align="center">
-  <img width="400" height="400" src="IMG_4696.gif">
+  <img width="300" height="300" src="IMG_4696.gif">
 </p>
 <h1  align="center";"> "𝙒𝙝𝙚𝙧𝙚 𝙙𝙤 𝙄 𝙣𝙚𝙚𝙙 𝙩𝙤 𝙜𝙤? 𝙅𝙪𝙨𝙩 𝙩𝙤 𝙛𝙞𝙣𝙙 𝙢𝙮 𝙡𝙤𝙫𝙚? 𝙈𝙪𝙨𝙩 𝙄 𝙙𝙧𝙤𝙬𝙣 𝙞𝙣 𝙢𝙮 𝙝𝙖𝙩𝙚?"</h1> 
 <p align="center">
